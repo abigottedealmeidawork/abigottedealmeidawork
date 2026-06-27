@@ -8,7 +8,7 @@ I'm a passionate **Product Lead and Project Manager** with experience in **web a
 
 ## Get in Touch 📬
 
-- **[LinkedIn](www.linkedin.com/in/abigottedealmeida)**
+- **[LinkedIn](https://www.linkedin.com/in/abigottedealmeida)**
 
 
 
